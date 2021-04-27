@@ -1,1 +1,1 @@
-tidak ada yg tampan ternyata
+anu anu anuunuu
