@@ -1,2 +1,1 @@
-chandra TAmpan sekali
-wahyudi juga tampan
+tidak ada yg tampan ternyata
